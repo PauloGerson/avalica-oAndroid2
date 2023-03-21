@@ -1,1 +1,0 @@
-# avalica-oAndroid2
